@@ -1,1 +1,1 @@
-![image](https://github.com/love99you/2024new_year/assets/118249630/61cc96f3-e0f5-43cd-9fef-7dbc08988fff)
+![image](https://github.com/AlexxLJ/2025new_year/blob/main/%E7%A5%9D%E5%A4%A7%E5%AE%B6%E6%96%B0%E7%9A%84%E4%B8%80%E5%B9%B4%E9%87%8C.jpg)
