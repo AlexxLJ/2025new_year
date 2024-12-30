@@ -1,6 +1,7 @@
 ![image](https://alexxlj.github.io/2025new_year/祝大家新的一年里.jpg)
 # This message is animated in Chinese and here is what it means:
-("Please click on the desired locations for some of those firework display.")
+>[!NOTE]
+>("Please click on the desired locations to display some of those firework.")
 
 EN:        “I wish you all the best for the new year”.  
 				“Healthy and safe”,  
